@@ -4,9 +4,9 @@
 
 In this guide, we will explore everything you need to know about TFT Unlock Tool — including its features, compatible devices, use cases, benefits, and reasons why it’s trusted by professionals across the globe.
 
-## [👉👉 TFT Unlock Tool  v4.6.4.4](https://tft-unlock-tool.com)
+## [👉👉 TFT Unlock Tool  v4.6.4.4](https://tft-unlock-tool.com/)
 
-## [👉👉 TFT Unlock Tool  v6.2.1](https://tft-unlock-tool.com)
+## [👉👉 TFT Unlock Tool  v6.2.1](https://tft-unlock-tool.com/)
 
 
 
